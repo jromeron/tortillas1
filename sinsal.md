@@ -1,4 +1,4 @@
-1.2 huevos L.
+1.2 huevos
 2.50 g de mantequilla sin sal.
 3.250 ml de leche.
 4.50 g de azúcar blanco.
